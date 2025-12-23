@@ -1,5 +1,5 @@
 # Yuvraj Harsh Bhujun - Alexandra Leung Dat
 
-# Karishma Ramjug - 
+# Karishma Ramjug - Khooshboo
 
 # Shreeyash Mohess - Suhail
