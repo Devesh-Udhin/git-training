@@ -1,5 +1,5 @@
-# Yuvraj Bhujun - Alexandra
+# Yuvraj Bhujun - Alexandra Leung
 
-# Karishma - Khooshboo
+# Karishma Ramjug - Khooshboo
 
-# Shreeyash - Suhail Ramjeet
+# Shreeyash Mohess - Suhail
