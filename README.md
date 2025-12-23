@@ -1,4 +1,4 @@
-# Yuvraj Bhujun - Alexandra
+# Yuvraj Bhujun - Alexandra Leung
 
 # Karishma - Khooshboo
 
