@@ -1,4 +1,4 @@
-# Yuvraj Bhujun - Alexandra Leung Dat
+# Yuvraj Harsh Bhujun - Alexandra Leung Dat
 
 # Karishma Ramjug - Khooshboo
 
